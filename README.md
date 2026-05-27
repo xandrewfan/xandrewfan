@@ -1,5 +1,4 @@
-## Hi there 👋
-
+i dont have a dni list but if ur genuinely unpleasant to be around iwec ^w^. #🎈
 <!--
 **xandrewfan/xandrewfan** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
