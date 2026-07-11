@@ -1,1 +1,1 @@
-i dont have a dni list but iwcuf always ^w^
+dni: basic dni, tcoaal fans, terrible mouse fans, qwelver & rox defenders/supporters, gneuine weirdos, hitting people with paddle, spoon, knife or other for no reason,,,                                                                                                                                                                                                 iwc: dandys world, forsaken, ddlc & tadc fans, ivandrew shippers & ivan/andrew yumeshippers
